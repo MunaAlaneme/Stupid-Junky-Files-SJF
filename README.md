@@ -1,1 +1,1 @@
-# Stupid-Junky-Files-SJF-
+# Stupid Junky Files (SJF)
